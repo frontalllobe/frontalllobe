@@ -13,7 +13,8 @@
 <img src="https://64.media.tumblr.com/df1792a37dfcc631073e17486fc2ec40/ef596453494b2fa2-38/s75x75_c1/13466be6c20320a317deff84fcf91b333af5f3f6.gifv" alt="alt text" width="100"> <img src="https://64.media.tumblr.com/4ded951026349efc2fe3b126f6365f7e/c39847aa513c1d9c-c7/s100x200/456438e4898cd7a3fbd3cbd5efb503f6430880e6.gifv" alt="alt text" width="120">
 
 
-![Contador de Visitas](https://komarev.com)
+![Contador de Visitas](https://shields.io)
+
 
 
   
