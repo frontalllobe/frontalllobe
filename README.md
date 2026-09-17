@@ -1,3 +1,5 @@
+![Typing SVG](https://readme-typing-svg.demolab.com/?font=Fira+Code&size=22&color=739853&center=true&vCenter=true&width=500&lines=welcome+to+my+profile><;thanks+for+visiting!)
+
 <div align="center">
   <img src="https://komarev.com/ghpvc/?username=frontalllobe&label=𑣲.&color=739853&style=flat" />
 </div>
