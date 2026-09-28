@@ -1,4 +1,10 @@
 <div align="center">
+
+<div align="center">
+  <img src="https://64.media.tumblr.com/86ef43add9b77df9292bb654030405ac/704f4ace9de71c4b-14/s250x400/95f3166e8aaa45598f3d423e4c626f405eaab644.gifv" width="100">
+</div>
+
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀️️
   
 ![Typing SVG](https://readme-typing-svg.demolab.com/?font=Fira+Code&size=22&color=7fa79a&center=true&vCenter=true&width=500&lines=Be+all+the+beautiful+things+you+are;and+be+them+without+apology.;For+all+eternity.)
 
@@ -11,10 +17,14 @@
   </a>
 </p>
 
+ ⸝⸝ㅤㅤㅤ[Passportdex](https://passportdex.com/gunshot) ㅤㅤ⸝⸝ㅤㅤ[straw](https://geritasw.straw.page/) ㅤㅤ⸝⸝
 
 
-⸝⸝ㅤㅤㅤ[Passportdex](https://passportdex.com/gunshot) ㅤㅤ⸝⸝ㅤㅤ[straw](https://geritasw.straw.page/) ㅤㅤ⸝⸝
+<div align="center">
+  <img src="https://64.media.tumblr.com/812df64fec608915a9430a50dc54eff0/33dfd7eda65ea141-a7/s500x750/5b8a9c3c21efa40a4da7d32edbe4ee1909fceb56.gifv" width="xxx">
+</div>
+
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀️️
 
 
-
- 
+  <img src="https://i.pinimg.com/736x/f1/ee/83/f1ee834af7ba2e3e0cca1b751a14d44d.jpg" width="400">   <img src="https://i.pinimg.com/736x/5f/4e/05/5f4e053e21f3b9d3f0efd137127e3517.jpg" width="238">
