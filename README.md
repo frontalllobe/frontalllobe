@@ -17,7 +17,7 @@
   </a>
 </p>
 
- ⸝⸝ㅤㅤㅤ[Passportdex](https://passportdex.com/gunshot) ㅤㅤ⸝⸝ㅤㅤ[straw](https://geritasw.straw.page/) ㅤㅤ⸝⸝
+ ⸝⸝ㅤㅤㅤ[Passportdex](https://passportdex.com/gunshot) ㅤㅤ⸝⸝ㅤㅤ[memento mori (on wiki) pls read :3](https://en.wikipedia.org/wiki/Memento_mori) ㅤㅤ⸝⸝
 
 
 <div align="center">
