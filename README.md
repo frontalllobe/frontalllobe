@@ -20,11 +20,6 @@
  ⸝⸝ㅤㅤㅤ[Passportdex](https://passportdex.com/gunshot) ㅤㅤ⸝⸝ㅤㅤ[memento mori (on wiki) pls read :3](https://en.wikipedia.org/wiki/Memento_mori) ㅤㅤ⸝⸝
 
 
-<div align="center">
-  <img src="https://64.media.tumblr.com/812df64fec608915a9430a50dc54eff0/33dfd7eda65ea141-a7/s500x750/5b8a9c3c21efa40a4da7d32edbe4ee1909fceb56.gifv" width="xxx">
-</div>
-
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀️️
-
 
   <img src="https://i.pinimg.com/736x/f1/ee/83/f1ee834af7ba2e3e0cca1b751a14d44d.jpg" width="400">   <img src="https://i.pinimg.com/736x/5f/4e/05/5f4e053e21f3b9d3f0efd137127e3517.jpg" width="238">
