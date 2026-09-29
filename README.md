@@ -16,7 +16,7 @@
   </a>
 </p>
 
- ⸝⸝ㅤㅤㅤ[Passportdex](https://passportdex.com/gunshot) ㅤㅤ⸝⸝ㅤㅤ[memento mori (on wiki)](https://en.wikipedia.org/wiki/Memento_mori) ㅤㅤ⸝⸝
+ ⸝⸝ㅤㅤㅤ[Passportdex](https://passportdex.com/gunshot) ㅤㅤ⸝⸝ㅤㅤ[rentry](https://rentry.co/takethegun) ㅤㅤ⸝⸝
 
 
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀️️
