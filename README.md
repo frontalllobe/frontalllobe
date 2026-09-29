@@ -5,8 +5,7 @@
 </div>
 
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀️️
-  
-![Typing SVG](https://readme-typing-svg.demolab.com/?font=Fira+Code&size=22&color=78593b&center=true&vCenter=true&width=500&lines=Be+all+the+beautiful+things+you+are;and+be+them+without+apology.;For+all+eternity.)
+
 
 <div align="center">
   <img src="https://komarev.com/ghpvc/?username=frontalllobe&label=letters&color=78593b&style=flat" />
@@ -17,9 +16,11 @@
   </a>
 </p>
 
- ⸝⸝ㅤㅤㅤ[Passportdex](https://passportdex.com/gunshot) ㅤㅤ⸝⸝ㅤㅤ[memento mori (on wiki) pls read :3](https://en.wikipedia.org/wiki/Memento_mori) ㅤㅤ⸝⸝
+ ⸝⸝ㅤㅤㅤ[Passportdex](https://passportdex.com/gunshot) ㅤㅤ⸝⸝ㅤㅤ[memento mori (on wiki)](https://en.wikipedia.org/wiki/Memento_mori) ㅤㅤ⸝⸝
 
 
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀️️
 
-  <img src="https://i.pinimg.com/736x/f1/ee/83/f1ee834af7ba2e3e0cca1b751a14d44d.jpg" width="400">   <img src="https://i.pinimg.com/736x/5f/4e/05/5f4e053e21f3b9d3f0efd137127e3517.jpg" width="238">
+  <img src="https://i.pinimg.com/originals/5b/5e/21/5b5e2137a187618ea663e8163f678e83.gif" width="400"> <img src="https://i.pinimg.com/736x/35/84/92/35849201a9499925d1f8f51ececac566.jpg" width="310">
+
+![Typing SVG](https://readme-typing-svg.demolab.com/?font=Fira+Code&size=22&color=78593b&center=true&vCenter=true&width=500&lines=Be+all+the+beautiful+things+you+are;and+be+them+without+apology.;For+all+eternity.)
