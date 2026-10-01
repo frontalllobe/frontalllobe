@@ -1,7 +1,7 @@
 <div align="center">
 
 <div align="center">
-  <img src="https://64.media.tumblr.com/86ef43add9b77df9292bb654030405ac/704f4ace9de71c4b-14/s250x400/95f3166e8aaa45598f3d423e4c626f405eaab644.gifv" width="100">
+  <img src="https://64.media.tumblr.com/164358dfa2e84b43930e071b6b60f406/3d60bbdbe30a7e54-db/s540x810/d215ee20fb28af9b125c4e902bc36c9125d30602.pnj" width="100">
 </div>
 
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀️️
@@ -21,6 +21,6 @@
 
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀️️
 
-  <img src="https://i.pinimg.com/originals/5b/5e/21/5b5e2137a187618ea663e8163f678e83.gif" width="400"> <img src="https://i.pinimg.com/736x/35/84/92/35849201a9499925d1f8f51ececac566.jpg" width="310">
+  <img src="https://i.pinimg.com/originals/b5/6e/3f/b56e3fa1a6153269d4e89e8f4b4132ff.gif" width="400"> <img src="https://i.pinimg.com/1200x/71/2b/f5/712bf587347f3dfcaff96d710ed8be1d.jpg" width="223">
 
 ![Typing SVG](https://readme-typing-svg.demolab.com/?font=Fira+Code&size=22&color=3d3d3d&center=true&vCenter=true&width=500&lines=Be+all+the+beautiful+things+you+are;and+be+them+without+apology.;For+all+eternity.)
