@@ -24,3 +24,6 @@
   <img src="https://i.pinimg.com/originals/b5/6e/3f/b56e3fa1a6153269d4e89e8f4b4132ff.gif" width="400"> <img src="https://i.pinimg.com/1200x/71/2b/f5/712bf587347f3dfcaff96d710ed8be1d.jpg" width="223">
 
 ![Typing SVG](https://readme-typing-svg.demolab.com/?font=Fira+Code&size=22&color=3d3d3d&center=true&vCenter=true&width=500&lines=Be+all+the+beautiful+things+you+are;and+be+them+without+apology.;For+all+eternity.)
+
+
+<img src="https://i.pinimg.com/736x/bc/55/0c/bc550ca3029ab13806f2b60771d801b0.jpg" width="400">
