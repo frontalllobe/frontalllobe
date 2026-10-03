@@ -11,6 +11,7 @@
   <img src="https://komarev.com/ghpvc/?username=frontalllobe&label=letters&color=3d3d3d&style=flat" />
 </div>
 
+
 <p align="center">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31x75iysfxl7fobwury554khiysm&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=3d3d3d&bar_color_cover=false">
   </a>
