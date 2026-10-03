@@ -16,7 +16,7 @@
   </a>
 </p>
 
- ⸝⸝ㅤㅤㅤ[Passportdex](https://passportdex.com/gunshot) ㅤㅤ⸝⸝ㅤㅤ[memento mori (on wiki)](https://en.wikipedia.org/wiki/Memento_mori) ㅤㅤ⸝⸝ㅤㅤ[ATA](https://vitabrevisarlonga.atabook.org/) ㅤㅤ⸝⸝
+ ⸝⸝ㅤㅤㅤ[Passportdex](https://passportdex.com/gunshot) ㅤㅤ⸝⸝ㅤㅤ[strawpage)](https://catchthebunny.straw.page/) ㅤㅤ⸝⸝ㅤㅤ[ATA](https://vitabrevisarlonga.atabook.org/) ㅤㅤ⸝⸝
 
 
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀️️
