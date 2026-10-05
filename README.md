@@ -1,3 +1,7 @@
+<p align="center">
+  <img src="https://img.shields.io/badge/enter-polaris-b54e4e?style=flat-round&labelColor=555555">
+</p>
+
 <div>
   <img src="https://github.com/user-attachments/assets/99b35bbc-5bde-4ec6-af33-ccdac02050c8" width="300" align="right" hspace="10">
   <br>
@@ -14,8 +18,6 @@
 
 <br clear="right">
 
-<p align="center">
-  <img src="https://img.shields.io/badge/enter-polaris-b54e4e?style=flat-square">
 </p>
 
 <div>
@@ -35,7 +37,7 @@ $$\color{#b5914e} \Large \text{he had said, “as redistribution of matter.”}$
 <br clear="left">
 
 <div align="center">
-  <img src="https://komarev.com/ghpvc/?username=frontalllobe&label=letters&color=8a8851&style=flat-square" />
+  <img src="https://komarev.com/ghpvc/?username=frontalllobe&label=letters&color=8a8851&style=flat-round" />
 </div>
   <br>
   <br>
