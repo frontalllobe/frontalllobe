@@ -2,20 +2,6 @@
   <img src="https://img.shields.io/badge/enter-polaris-b54e4e?style=flat-round&labelColor=555555">
 </p>
 
-<div>
-  <img src="https://github.com/user-attachments/assets/99b35bbc-5bde-4ec6-af33-ccdac02050c8" width="300" align="right" hspace="10">
-  <br>
-  <br>
-  <br>
-  <br>
-  <br>
-
- $$\color{#8a8851} \Large \text{“You have bewitched me body and soul,}$$
-  $$\color{#8a8851} \Large \text{and I love, I love, I love you.}$$
-  $$\color{#8a8851} \Large \text{And wish from this day forth}$$
-  $$\color{#8a8851} \Large \text{never to be parted from you.”}$$
-</div>
-
 <br clear="right">
 
 </p>
