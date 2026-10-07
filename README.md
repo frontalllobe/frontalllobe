@@ -5,8 +5,6 @@
   <br>
 </p>
 
-$$\color{#8b3333} \Large \text{If i die before i wake,}$$
-$$\color{#8b3333} \Large \text{pray the Lord my soul to take}$$
 
 ***
 
@@ -19,14 +17,14 @@ $$\color{#8b3333} \Large \text{pray the Lord my soul to take}$$
   <br>
   <br>
   
-$$\color{#602626} \Large \text{It's a very Greek idea, and a very profound one. Beauty is terror. Whatever we call beautiful, we quiver before it.}$$
-$$\color{#602626} \Large \text{And what could be more terrifying and beautiful, to souls like the Greeks or our own, than to lose control completely? To throw off the chains of being for an instant, to shatter the accident of our mortal selves?}$$
-$$\color{#602626} \Large \text{Euripides speaks of the Maenads: head thrown I back, throat to the stars, "more like deer than human being." To be absolutely free!}$$
-$$\color{#602626} \Large \text{One is quite capable, of course, of working out these destructive passions in more vulgar and less efficient ways. But how glorious to release them in a single burst!}$$
-$$\color{#602626} \Large \text{To sing, to scream, to dance barefoot in the woods in the dead of night, with no more awareness of mortality than an animal!}$$
-$$\color{#602626} \Large \text{These are powerful mysteries. The bellowing of bulls. Springs of honey bubbling from the ground.}$$
-$$\color{#602626} \Large \text{If we are strong enough in our souls we can rip away the veil and look that naked, terrible beauty right in the face; let God consume us, devour us, unstring our bones.}$$
-$$\color{#602626} \Large \text{Then spit us out reborn.}$$
+$$\color{#602626} \large \text{It's a very Greek idea, and a very profound one. Beauty is terror. Whatever we call beautiful, we quiver before it.}$$
+$$\color{#602626} \large \text{And what could be more terrifying and beautiful, to souls like the Greeks or our own, than to lose control completely? To throw off the chains of being for an instant, to shatter the accident of our mortal selves?}$$
+$$\color{#602626} \large \text{Euripides speaks of the Maenads: head thrown I back, throat to the stars, "more like deer than human being." To be absolutely free!}$$
+$$\color{#602626} \large \text{One is quite capable, of course, of working out these destructive passions in more vulgar and less efficient ways. But how glorious to release them in a single burst!}$$
+$$\color{#602626} \large \text{To sing, to scream, to dance barefoot in the woods in the dead of night, with no more awareness of mortality than an animal!}$$
+$$\color{#602626} \large \text{These are powerful mysteries. The bellowing of bulls. Springs of honey bubbling from the ground.}$$
+$$\color{#602626} \large \text{If we are strong enough in our souls we can rip away the veil and look that naked, terrible beauty right in the face; let God consume us, devour us, unstring our bones.}$$
+$$\color{#602626} \large \text{Then spit us out reborn.}$$
 </div>
   <br> 
   <br>
