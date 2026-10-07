@@ -18,9 +18,6 @@ $$\color{#8b3333} \Large \text{pray the Lord my soul to take}$$
   <img src="https://github.com/user-attachments/assets/0803e830-7336-406b-a77f-b1aad56d7b8a" width="250" align="right" hspace="10">
   <br>
   <br>
-  <br>
-  <br>
-  <br>
   
 $$\color{#602626} \Large \text{It's a very Greek idea, and a very profound one. Beauty is terror. Whatever we call beautiful, we quiver before it.}$$
 $$\color{#602626} \Large \text{And what could be more terrifying and beautiful, to souls like the Greeks or our own, than to lose control completely? To throw off the chains of being for an instant, to shatter the accident of our mortal selves?}$$
@@ -31,9 +28,6 @@ $$\color{#602626} \Large \text{These are powerful mysteries. The bellowing of bu
 $$\color{#602626} \Large \text{If we are strong enough in our souls we can rip away the veil and look that naked, terrible beauty right in the face; let God consume us, devour us, unstring our bones.}$$
 $$\color{#602626} \Large \text{Then spit us out reborn.}$$
 </div>
-  <br>
-  <br>
-  <br>
   <br> 
   <br>
 <br clear="left">
