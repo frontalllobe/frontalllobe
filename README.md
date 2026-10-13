@@ -1,8 +1,6 @@
 <p align="center">
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  <img src="https://komarev.com/ghpvc/?username=frontalllobe&label=letters&color=8b3333&style=flat-round" />
-</div>
-</p>
 
 <p align="center">
 <img src="https://i.pinimg.com/originals/8f/1f/49/8f1f49a2695bf074841ee65af8fda97e.gif" alt="alt text" width="xxx">
