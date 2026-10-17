@@ -4,7 +4,7 @@
 </p>
 
  <p align="center"> 
-<img src="https://media.discordapp.net/attachments/1377014938337546292/1561105104336195754/29_Sem_Titulo_20261017165401.png?ex=6ad523ec&is=6ad3d26c&hm=970ce0331b66d6417540a5ccbfd1166cfd981ae53176bb8a428da1e45449ad3e&=&format=webp&quality=lossless&width=845&height=1024" alt="alt text" width="600">
+<img src="https://media.discordapp.net/attachments/1377014938337546292/1561105104336195754/29_Sem_Titulo_20261017165401.png?ex=6ad523ec&is=6ad3d26c&hm=970ce0331b66d6417540a5ccbfd1166cfd981ae53176bb8a428da1e45449ad3e&=&format=webp&quality=lossless&width=845&height=1024" alt="alt text" width="500">
 <p align="center">
   <br>
   <br>
