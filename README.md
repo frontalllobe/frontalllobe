@@ -9,4 +9,4 @@
   <br>
   <br>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⸝⸝ㅤㅤㅤ[Passportdex](https://passportdex.com/gunshot) ㅤㅤ⸝⸝ㅤㅤ[gunslol](https://guns.lol/21.90s) ㅤㅤ⸝⸝ㅤㅤ[ata](https://vitabrevisarlonga.atabook.org/) ㅤㅤ⸝⸝ 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⸝⸝ㅤㅤㅤ[Passportdex](https://passportdex.com/gunshot) ㅤㅤ⸝⸝ㅤㅤ[pronouns](https://en.pronouns.page/@hellcatt) ㅤㅤ⸝⸝ㅤㅤ[ata](https://vitabrevisarlonga.atabook.org/) ㅤㅤ⸝⸝ 
