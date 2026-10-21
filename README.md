@@ -21,4 +21,4 @@
 <p align="center">
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⸝⸝ㅤㅤㅤ[Passportdex](https://passportdex.com/gunshot) ㅤㅤ⸝⸝ㅤㅤ[pronouns](https://en.pronouns.page/@hellcatt) ㅤㅤ⸝⸝ㅤㅤ[ata](https://vitabrevisarlonga.atabook.org/) ㅤㅤ⸝⸝ 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⸝⸝ㅤㅤㅤ[Passportdex](https://passportdex.com/gunshot) ㅤㅤ⸝⸝ㅤㅤ[pronouns](https://en.pronouns.page/@hellcatt) ㅤㅤ⸝⸝ㅤㅤ[ata](https://vitabrevisarlonga.atabook.org/) ㅤㅤ⸝⸝ 
