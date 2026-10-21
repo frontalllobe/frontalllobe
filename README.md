@@ -1,6 +1,14 @@
 <p align="center">
 
-  <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31x75iysfxl7fobwury554khiysm&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=4f8ca1&bar_color_cover=false">
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31x75iysfxl7fobwury554khiysm&cover_image=true&theme=novatorem&show_offline=true&background_color=4b809b&interchange=true&profanity=false&hide_remaster=false&bar_color=a9d1e5&bar_color_cover=false">
+  </a>
+</p>
+  </a>
+</p>
+  </a>
+</p>
 </p>
 <br>
 
