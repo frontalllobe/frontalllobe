@@ -17,8 +17,8 @@
 </p>
 <br>
 <p align="center"> 
-<img src="https://64.media.tumblr.com/659837a62489d9d6c698c76552120fcf/tumblr_p08mt4ynhM1rgjb0lo2_500.gifv" alt="alt text" width="600">
+<img src="https://i.pinimg.com/1200x/29/1d/3f/291d3f8007692eac0d2928ce8e6fa28e.jpg" alt="alt text" width="600">
 <p align="center">
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⸝⸝ㅤㅤㅤ[Vsco](https://vsco.co/-nvrisha/gallery) ㅤㅤ⸝⸝ㅤㅤ[Sharespot](https://www.sharespotapp.com/02111431) ㅤㅤ⸝⸝ㅤㅤ[ata](https://vitabrevisarlonga.atabook.org/) ㅤㅤ⸝⸝ 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⸝⸝ㅤㅤ[ata](https://vitabrevisarlonga.atabook.org/) ㅤㅤ⸝⸝ 
